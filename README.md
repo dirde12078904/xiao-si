@@ -9,3 +9,4 @@ Tis is xiao-si
 ![画板 1_副本](https://github.com/dirde12078904/xiao-si/assets/113779902/9698a748-52d3-4379-b89d-68d0755f069e)
 ![Xiao-si-8](https://github.com/dirde12078904/xiao-si/assets/113779902/b142caf1-bd61-490c-afb8-afc8e502fcb1)
 ![278820467-c327da57-5a3a-483d-a50e-53e8a7548f16](https://github.com/dirde12078904/xiao-si/assets/113779902/880ab249-3c71-4d21-ab95-f6d077a3e8b1)
+![37194a32a91ec4c9ceea3e9a53306bf](https://github.com/dirde12078904/xiao-si/assets/113779902/89bfbd58-50d5-4634-a988-65d9175a1915)
